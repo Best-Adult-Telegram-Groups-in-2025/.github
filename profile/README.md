@@ -36,7 +36,7 @@ Several online forums and directories list and review active Telegram adult grou
 
 ## **Top Adult Telegram Groups in 2025**
 
-Here are some of the [best adult Telegram groups](https://globaltimes18.com/best-18-telegram-groups-adult-groups/) based on popularity and engagement:
+Here are some of the [best adult Telegram groups](https://globaltimes18.com/best-18-adult-telegram-groups-and-channels/) based on popularity and engagement:
 
 ## **How to Join Adult Telegram Groups?**
 
